@@ -1,0 +1,1 @@
+# Mecanica_do_Guuga_Reponsividade
